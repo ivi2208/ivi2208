@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ivi2208
+- 👀 I’m interested in electronics 
+- 🌱 I’m currently learning noting 
+- 📫 How to reach me 2208ivi@gmail.com / iviivi22@yahoo.com 
+-❤️‍🔥😵‍💫✨️
